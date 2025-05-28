@@ -1,8 +1,8 @@
 <h3 align="center">DONATE
 </h3>
 
-- STK: `0898793581`
+- STK: `9021520477625`
 
-- MOMO / MBBANK
+- Timo Digital Bank by BVBank
 
 - CTK: NGUYEN THIEN NHAN
